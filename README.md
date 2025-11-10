@@ -69,7 +69,7 @@ This business model allows products to be sold at **lower prices** than traditio
 ## 📎 Marketing Plan & Project Materials
 
 - **Marketing Plan (Canva Presentation):**  
-  https://www.canva.com/design/DAGw0NyVJyE/wSVdU0I_RKpZOGRxchXuvg/edit?utm_content=DAGw0NyVJyE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAGw0NyVJyE/wSVdU0I_RKpZOGRxchXuvg/edit?utm_content=DAGw0NyVJyE&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
 
 - **Project Materials Folder (Drive):**  
   https://drive.google.com/drive/folders/1LWi8314vRMv3bY6XlbpPtosKRycf2AM3
